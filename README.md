@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **msazta123456@gmail.com**
 
-- ⚡ Fun fact **I think I am you Dad**
+- ⚡ Fun fact **I think there is someone who is watching us**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
